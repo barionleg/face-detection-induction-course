@@ -8,3 +8,11 @@
 
 ## Next
 * think about it.
+
+https://youtu.be/QUuKvHHt8Sk 
+
+up to t=126
+
+fter från t=23©
+
+https://youtu.be/yUi_S6YWjZw?t=23
